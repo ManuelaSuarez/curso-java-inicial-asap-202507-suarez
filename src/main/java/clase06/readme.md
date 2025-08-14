@@ -1,0 +1,1 @@
+Ejerctación resuelta en https://github.com/ramigalvan/asap-utn-grupo2-ejercicio6
