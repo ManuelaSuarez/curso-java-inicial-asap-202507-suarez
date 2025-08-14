@@ -1,0 +1,1 @@
+Ejercitación resuelta en https://docs.google.com/document/d/1oYYdmY2gGtqUvgD1r6Oc6tPh8CWNpS45Xg_-RW0mSeQ/edit?usp=sharing
